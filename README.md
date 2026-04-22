@@ -1,0 +1,1 @@
+# class_method6_2204
